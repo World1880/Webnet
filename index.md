@@ -1,5 +1,0 @@
-## WORLD 1880 
-
-WELCOME TO WORLD 1880
-
-About Us
